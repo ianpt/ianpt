@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **ianptotti@gmail.com**
 
-- ⚡ Fun fact **I have a Music Degree, funny**
+- ⚡ Fun fact **I have a Music Degree**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
